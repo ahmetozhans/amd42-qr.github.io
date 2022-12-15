@@ -1,0 +1,1 @@
+# amd42-qr.github.io
